@@ -31,8 +31,8 @@
 ---
 
 ### 📫 Contact Info:
-- GitHub: [github.com/BalachandruN](https://github.com/BalachandruN)  
-- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/balachandru-n/)  
+- GitHub: [github.com/BalachandruN](https://github.com/balachandru10)  
+- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/balachandru-n-12502a324/)
 - Email: [nbalachandru22122002@gmail.com](mailto:nbalachandru22122002@gmail.com)  
 
 ---
